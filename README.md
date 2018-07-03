@@ -1,0 +1,1 @@
+# PIR-Gabriele-CAPASSO-Stress-Based-TO-Morphing-Wing-NLMechanics
